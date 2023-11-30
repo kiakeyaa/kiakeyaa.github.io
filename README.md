@@ -5,3 +5,7 @@
 ![Mater Salutis Parish](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZlZkApqdpryiwPj9EATKbZrNOaURNat_C2ACNYBOYdbQN0xP-YEPVvKOHZLQ3OgmW08Pqo28rKbXRyzP6q0K73YKvdSqST_aMehXdcRzYys3YVC2gRqi7oKDxanDkLiH439FzhKPcNQfJw0P3aRU0F8CmRSZBIBALCkQggWzk9FoINaRcbgsKUHAlow/s580/Mater%20Salutis%20Parish%20-%20Cararayan,%20Naga%20City,%20Camarines%20Sur.jpg)
 
 Mater Salutis Parish of the Roman Catholic Archdiocese of Caceres was established on September 17, 2001. It is located at Brgy. Cararayan, Naga City, Province of Camarines Sur. The Parish Fiesta is celebrated every 10th day of October.
+
+**Details of Parish :**
+
+**_Parish Priest:_** Rev. Fr. Roldan Tordilla
