@@ -2,4 +2,4 @@
 
 *Aiko A. Sato 9-Brebeuf*
 
-![Mater Salutis Parish](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.parishph.com%2F2018%2F06%2Fmater-salutis-parish-naga-city.html&psig=AOvVaw1xkD1m40jIssZncPdQ0YmO&ust=1701411142718000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCPD5u7aL64IDFQAAAAAdAAAAABAb)
+![Mater Salutis Parish](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZlZkApqdpryiwPj9EATKbZrNOaURNat_C2ACNYBOYdbQN0xP-YEPVvKOHZLQ3OgmW08Pqo28rKbXRyzP6q0K73YKvdSqST_aMehXdcRzYys3YVC2gRqi7oKDxanDkLiH439FzhKPcNQfJw0P3aRU0F8CmRSZBIBALCkQggWzk9FoINaRcbgsKUHAlow/s580/Mater%20Salutis%20Parish%20-%20Cararayan,%20Naga%20City,%20Camarines%20Sur.jpg)
