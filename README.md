@@ -33,3 +33,10 @@ Feast Date: **_October. 10_**
 ## Mary Mother of Salvation
 
 ![Mary Mother of Salvation](https://magnificat.ca/odm/wp-content/uploads/2023/05/mere-du-salut.jpg))
+
+
+Altar of Mater Salutis Parish - Cararayan, Naga City, Camarines Sur. 
+
+
+![Altar of Mater Salutis Parish](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjH68R-E1aYZdcwsvxlDtGUnBGfhHLc839hgipocJqdJxKVG-SLVZhqT3HOsNVUxf8gvbvFsxHyn1Rqs6-dlUZgTSZulUMCg56mUuEzWx08bqBET9Ed1s7ROdYRUdjDN0EezhzTuwCR9hFF-4j6GE3Oo7BWT5K93rP8q9aOeRKr6HghvGmdKtdvrv-trw/w320-h187/Mater%20Salutis%20Parish%20-%20Cararayan,%20Naga%20City,%20Camarines%20Sur%20-%20Altar.png)
+
