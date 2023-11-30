@@ -27,12 +27,8 @@ Feast Date: **_October. 10_**
 
 
 
- **_Patron Saint of Parish_** :
+ **_Patron Saint of Parish_** : **_Mother Mary of Salvation_**
 
-
-## Mary Mother of Salvation
-
-![Mary Mother of Salvation](https://magnificat.ca/odm/wp-content/uploads/2023/05/mere-du-salut.jpg))
 
 
 Altar of Mater Salutis Parish - Cararayan, Naga City, Camarines Sur. 
