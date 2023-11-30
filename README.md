@@ -12,3 +12,12 @@ Parish Priest: **_Rev. Fr. Roldan Tordilla_**
 
 
 Address: **_Cararayan 4400 City of Naga_**
+
+
+Vicariate: **_Our Lady of Peñafrancia_**
+
+
+Established: **_September 17, 2001_**
+
+
+Titular: **_Mater Salutis_**
