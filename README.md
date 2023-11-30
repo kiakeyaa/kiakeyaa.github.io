@@ -30,6 +30,6 @@ Feast Date: **_October. 10_**
 **_Patron Saint of Parish_** :
 
 
- **# Mary Mother of Salvation**
+# Mary Mother of Salvation
 
 ![Mary Mother of Salvation](https://magnificat.ca/odm/wp-content/uploads/2023/05/mere-du-salut.jpg))
